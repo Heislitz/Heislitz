@@ -1,6 +1,6 @@
 Let me shortly introduce us:
 
-For more than 23 years now we offer a broad range of services in IT-, web- and app development alongside marketing and design.
+For more than 26 years now we offer a broad range of services in IT-, web- and app development alongside marketing and design.
 Always with a strong focus on best practice, good taste and aesthetics at a high quality level. Since the world of media and internet is constantly
 changing, becoming more diverse and technically challenging everyday, we also continuously adapt our services and skills to these market needs. 
 
